@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Oluwafemi Timehin 
+- 👀 I’m interested in AI, technology.
+- 🌱 I’m currently taking an AI career essentials course with ALX and exploring opportunities in AI-related roles.
+- 💞️ I’m looking to collaborate on open-source projects, AI applications, and educational content that empowers others.
+- 📫 How to reach me oluwafemitimehin49@gmail.com or https://www.linkedin.com/in/oluwafemi-timehin-22796b277?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I find solace in nature and enjoy capturing moments as memories!
